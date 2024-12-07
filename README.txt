@@ -1,1 +1,1 @@
-Dobro dosli na moj prvi repozitorjium!
+Dobrodosli na moj prvi repozitorjium!
